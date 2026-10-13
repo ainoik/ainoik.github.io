@@ -1,1 +1,0 @@
-# ainoik.github.io
